@@ -20,6 +20,6 @@
 * I plan on getting my Associates degree at a community college then switching to a 4 year for my BS degree.
 ## Interesting Websites
  1.  [Kotaku](https://www.kotaku.com) - This is a gaming website that has very opinionated articles.
- 2.  [YouTube](https//www.youtube.com) - YouTube is a site that has tons of videos, there is something for everyone.
+ 2.  [YouTube](https://www.youtube.com) - YouTube is a site that has tons of videos, there is something for everyone.
 
 
