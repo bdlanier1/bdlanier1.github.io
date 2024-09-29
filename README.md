@@ -18,8 +18,8 @@
 * I'm really into gaming.  Most of my gaming is done on the PlayStation 5 but sometimes I go on my gaming pc.
 * I have always been interested in the various aspects of Information Technology.  It used to be mainly tech support but I have been getting more interested in virtualization.
 * I plan on getting my Associates degree at a community college then switching to a 4 year for my BS degree.
-##Interesting Websites##
-* 1.  [Kotaku](www.kotaku.com) - This is a gaming website that has very opinionated articles.
-* 2.  [YouTube](www.youtube.com) - YouTube is a site that has tons of videos, there is something for everyone.
+## Interesting Websites
+ 1.  [Kotaku](www.kotaku.com) - This is a gaming website that has very opinionated articles.
+ 2.  [YouTube](www.youtube.com) - YouTube is a site that has tons of videos, there is something for everyone.
 
 
